@@ -17,7 +17,7 @@ I'm always on the lookout for the latest technologies. Currently, I'm diving int
 
 ## 📫 Let's Connect
 
-- [LinkedIn] https://www.linkedin.com/in/muthukumar-krishna-murthy/
+- LinkedIn - https://www.linkedin.com/in/muthukumar-krishna-murthy/
 
 
 Feel free to reach out! I'm always open to new opportunities, collaborations, or just a friendly chat.
